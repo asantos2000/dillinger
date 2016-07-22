@@ -29,22 +29,16 @@ Desconto À Vista : R$ 266,36
 Desconto À Vista : R$ 2,80
 1 x R$ 3,11 = R$ 3,11
 
-- Disco de Polimento Lixa Gold P320 152mm - 3M-216U-P320	Disco de Polimento Lixa Gold P320 152mm - 3M-216U-P320. 
-Desconto À Vista : R$ 2,72
-1 x R$ 3,02 = R$ 3,02
+- Disco de Polimento Lixa Gold P320 152mm - 3M-216U-P320	Disco de Polimento Lixa Gold P320 152mm - 3M-216U-P320. Desconto À Vista : R$ 2,72 ou 1 x R$ 3,02 = R$ 3,02 (07/2016)
 
-- Caixa de Ferramentas Sanfonada com 7 Gavetas Azul FERCAR-N09.
-Desconto À Vista : R$ 49,90
-1 x R$ 55,44 = R$ 55,44
+- Caixa de Ferramentas Sanfonada com 7 Gavetas Azul FERCAR-N09. Desconto À Vista : R$ 49,90 ou 1 x R$ 55,44 = R$ 55,44 (07/2016)
 
 - Botina de Segurança com Elástico sem Biqueira N°40 VONDER-7026520040.
-Desconto À Vista : R$ 34,46
-1 x R$ 38,29 = R$ 38,29
+Desconto À Vista : R$ 34,46 ou 1 x R$ 38,29 = R$ 38,29 (07/2016)
 
-- Protetor Facial Incolor 200 mm VONDER-70.78.000.158.
-Desconto À Vista : R$ 23,91
-1 x R$ 26,57 = R$ 26,57
+- Protetor Facial Incolor 200 mm VONDER-70.78.000.158. Desconto À Vista : R$ 23,91 ou 1 x R$ 26,57 = R$ 26,57 (07/2016)
 
-- Capacete Evolution Amarelo com Protetor Facial e Abafador CG 108. CARBOGRAFITE-010430710
-Desconto À Vista : R$ 133,50
-1 x R$ 148,33 = R$ 148,33
+- Capacete Evolution Amarelo com Protetor Facial e Abafador CG 108 CARBOGRAFITE-010430710. Desconto À Vista : R$ 133,50 ou 1 x R$ 148,33 = R$ 148,33 (07/2016)
+
+- Serra de Esquadria 220V 1800W SKIL-3310.
+Desconto À Vista : R$ 678,90 ou 1 x R$ 754,33 (07/2016)
